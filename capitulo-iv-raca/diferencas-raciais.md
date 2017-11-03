@@ -67,5 +67,39 @@ Assim, as falhas e os sucessos de qualquer grupo de pessoas estão relacionados 
 
 **Refutação**: Oh, eu entendo agora, é apenas racismo quando as pessoas com as quais você não concorda fazem isso. Eu acho que todo mundo entende sua definição de racismo agora, obrigado. ("saia" andando).
 
+---
 
+**Argumento**: É ignorância dizer que os negros cometem mais crimes - a maioria dos assassinos em série são brancos.
+
+**Refutação**: Prefiro ter 50 assassinatos por um assassino em série branco insano, do que 5000 assassinatos e estupros por 5000 negros impulsivos. Você não?
+
+**Refutação**: A maioria dos assassinatos ainda são feitos por negros - é claro que eles raramente alcançam o status de assassino em série, já que eles são pegos quase que imediatamente por causa de seus crimes fracassados.
+
+**Refutação**: Então, é melhor eu me mudar para os guetos negros, eu seria muito mais seguro do que neste bairro branco infestado de serial killer! Em qual planeta você está vivendo?
+
+---
+
+**Argumento**: Somos todos iguais. Todas as nossas diferenças são por causa do condicionamento social / ambiente / educação.
+
+**Refutação**: Você está pensando ao contrário. Nosso meio ambiente e nossa sociedade são o resultado de nossa natureza biológica. Quando os negros imigram para um país branco, eles ainda se comportam como negros, mesmo 10 gerações depois. Quando os brancos vão para a África, eles ainda se comportam como brancos e criam sociedades brancas. Sua teoria é totalmente separada da realidade.
+
+**Refutação**: Essa é uma boa teoria. Mas ela foi forçada cerca de mil vezes e sempre falha. Programa após programa para evitar falhas financeiras e comportamentais, e sua situação só piorou. Eu não estou interessado em teorias quando toda a realidade as contradiz.
+
+**Refutação**: Se somos todos iguais, então por que pessoas diferentes criam sociedades completamente diferentes? Se somos todos iguais, por que os negros sempre criam sociedades caóticas e atrasadas, e por que os asiáticos sempre desenvolvem sociedades complexas e bem organizadas?
+
+Finalize com: Esta é apenas uma desculpa conveniente para gastar milhões com minorias, enquanto se negligencia a maioria branca, "já que eles já são mais bem-sucedidos".
+
+Resista dizendo: Estudos análogos mostram que a genética é responsável por grande parte do nosso comportamento, incluindo inteligência e sucesso.
+
+---
+
+**Argumento**: Os humanos têm 99% de seus genes em comum.
+
+**Refutação**: Sim, também temos 95% de nossos genes em comum com um chimpanzé. Há também uma fração de um por cento da diferença entre um homem e uma mulher - isso não faz do gênero uma "construção social". E não se precisa "possuir" um diploma em biologia molecular para descobrir diferenças raciais - se você saísse do seu escritório universitário um pouco, você entenderia o conceito apenas interagindo com todas as pessoas que são "exatamente o mesmo que nós".
+
+---
+
+**Argumento**: Somos todos iguais / existe apenas uma raça, a raça humana.
+
+**Refutação**: Esse é um sentimento bonito e sensacional. É lamentável que toda a história e toda a realidade contradizem essa ideia. É lamentável que a imensa maioria das pessoas não se sinta assim, nunca se sentiu assim e nunca se sentirá dessa maneira. É lamentável, mas é assim que as coisas são. E se você prefere ignorar a realidade e se concentrar em como as coisas "deveriam" ser, então, não é de se admirar que suas políticas nunca funcionarão na vida real.
 
