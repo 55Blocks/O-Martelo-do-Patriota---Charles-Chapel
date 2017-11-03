@@ -6,7 +6,7 @@
   * [Julgando a situação](capitulo-i-introducao/julgando-a-situacao.md)
   * [Diretrizes gerais](capitulo-i-introducao/diretrizes-gerais.md)
   * [Notas sobre os argumentos](capitulo-i-introducao/notas-sobre-os-argumentos.md)
-* Capítulo II - Política
+* [Capítulo II - Política](capitulo-ii-politica.md)
   * [Nacionalismo étnico](nacionalismo-etnico.md)
   * [Democracia](democracia.md)
   * [Liberdade](liberdade.md)
@@ -17,9 +17,9 @@
   * [Relativismo moral](capitulo-iii-sociedade/relativismo-moral.md)
   * [Feminismo/papéis naturais de gênero](capitulo-iii-sociedade/feminismopapeis-naturais-de-genero.md)
   * [Religião na sociedade](capitulo-iii-sociedade/religiao-na-sociedade.md)
-  * Homossexualidade
-  * Direitos humanos
-* Capítulo IV - Raça
+  * [Homossexualidade](capitulo-iii-sociedade/homossexualidade.md)
+  * [Direitos humanos](capitulo-iii-sociedade/direitos-humanos.md)
+* [Capítulo IV - Raça](capitulo-iv-raca.md)
   * Diferenças raciais
   * Diversidade
   * Judeus
