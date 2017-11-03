@@ -13,10 +13,10 @@
   * [Capitalismo e libertarianismo](capitalismo-e-libertarianismo.md)
   * [Uso da violência](uso-da-violencia.md)
   * [Ajudando o terceiro mundo](ajudando-o-terceiro-mundo.md)
-* Capítulo III - Sociedade
-  * Relativismo moral
-  * Feminismo/papéis naturais de gênero
-  * Religião na sociedade
+* [Capítulo III - Sociedade](capitulo-iii-sociedade.md)
+  * [Relativismo moral](capitulo-iii-sociedade/relativismo-moral.md)
+  * [Feminismo/papéis naturais de gênero](capitulo-iii-sociedade/feminismopapeis-naturais-de-genero.md)
+  * [Religião na sociedade](capitulo-iii-sociedade/religiao-na-sociedade.md)
   * Homossexualidade
   * Direitos humanos
 * Capítulo IV - Raça

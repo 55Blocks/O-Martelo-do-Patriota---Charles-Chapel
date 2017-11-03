@@ -42,7 +42,7 @@ Pacifismo é uma tendência profundamente anti-espiritual. Aqueles que desejam e
 
 **Argumento**: Se não houvesse mais guerras, todos seriam felizes.
 
-## Refutação: Em um mundo com recursos limitados, se a guerra não matar pessoas, a fome ou as doenças matarão. Se evitarmos o conflito com outros, o conflito virá eventualmente até nós, porque pessoas mais corajosas e ousadas preferirão a guerra à decair lentamente. Se quisermos evitar sermos as vítimas, precisamos ser corajosos e ousados nós mesmos.
+**Refutação**: Em um mundo com recursos limitados, se a guerra não matar pessoas, a fome ou as doenças matarão. Se evitarmos o conflito com outros, o conflito virá eventualmente até nós, porque pessoas mais corajosas e ousadas preferirão a guerra à decair lentamente. Se quisermos evitar sermos as vítimas, precisamos ser corajosos e ousados nós mesmos.
 
 **Argumento**: Guerras sempre são travadas para o benefício dos ricos e gananciosos à custa das pessoas comuns.
 
@@ -64,21 +64,27 @@ Pacifismo é uma tendência profundamente anti-espiritual. Aqueles que desejam e
 
 **Refutação**: O perdão é necessário quando lutamos uns contra os outros, porque divisões desnecessárias nos enfraquecem. Mas se estamos em guerra com povos estrangeiros por recursos e poder, o perdão é irrelevante porque não há nada para perdoar. Então procurar conciliação é um grave erro e nos deixa vulnerável a uma mal terrível – porque o que precisamos não é de uma pausa à violência, mas da vitória.
 
-## **Refutação**: Toda vida é um ciclo de violência. Não por causa de vingança, retaliação ou qualquer outra emoção superficial do tipo. É porque toda vida quer sobreviver e prosperar, competições violentas pelo domínio de recursos e territórios é algo com o que todas as formas de vida neste planeta estão familiarizadas – fora da cabeça de esquerdistas delirantes pelo menos. O dia que você para de lutar, é o dia que você perde o direito de existir.
+**Refutação**: Toda vida é um ciclo de violência. Não por causa de vingança, retaliação ou qualquer outra emoção superficial do tipo. É porque toda vida quer sobreviver e prosperar, competições violentas pelo domínio de recursos e territórios é algo com o que todas as formas de vida neste planeta estão familiarizadas – fora da cabeça de esquerdistas delirantes pelo menos. O dia que você para de lutar, é o dia que você perde o direito de existir.
+
+---
 
 **Argumento**: Nós precisamos deixar de lado nossas diferenças e buscar a paz.
 
-## **Refutação**: Nossas “diferenças” não são coisas que podem ser deixadas de lado como roupas velhas. Iremos “deixar de lado” nossa fé na justiça? Iremos “deixar de lado” nossos valores e ideais? Iremos deixar de lado nossa fé na dignidade humana? Nunca. Quem iria querer paz enquanto abandona tudo aquilo que faz de nós quem somos? Algumas pessoas não ligam para nada exceto viver a vida no conforto e segurança. Se elas precisarem sacrificar o futuro das próprias crianças, que seja. Se precisarem sacrificar milhares de anos de cultura e história, então – quem precisa disso? Vide Europa atualmente Qualquer coisa, qualquer coisa para poder continuar assistindo seus programas de televisão e comprando novas porcarias com seus cartões de crédito. Eu creio que nosso povo é mais forte que isso.
+**Refutação**: Nossas “diferenças” não são coisas que podem ser deixadas de lado como roupas velhas. Iremos “deixar de lado” nossa fé na justiça? Iremos “deixar de lado” nossos valores e ideais? Iremos deixar de lado nossa fé na dignidade humana? Nunca. Quem iria querer paz enquanto abandona tudo aquilo que faz de nós quem somos? Algumas pessoas não ligam para nada exceto viver a vida no conforto e segurança. Se elas precisarem sacrificar o futuro das próprias crianças, que seja. Se precisarem sacrificar milhares de anos de cultura e história, então – quem precisa disso? Vide Europa atualmente Qualquer coisa, qualquer coisa para poder continuar assistindo seus programas de televisão e comprando novas porcarias com seus cartões de crédito. Eu creio que nosso povo é mais forte que isso.
+
+---
 
 **Argumento**: Nós precisamos proibir o porte de arma porque isso gera mais violência.
 
-## **Refutação**: Violência é gerada por criminosos e pessoas violentas, não por armas de fogo e facas. Varas de pesca em excesso não trazem sofrimento aos peixes – apenas o excesso de pescadores faz isso. Armas são ferramentas e elas podem ser usadas para o bem ou para o mal. Você impedir os bons de terem armas sem afetar em nada os maus é loucura e idiotice.
+**Refutação**: Violência é gerada por criminosos e pessoas violentas, não por armas de fogo e facas. Varas de pesca em excesso não trazem sofrimento aos peixes – apenas o excesso de pescadores faz isso. Armas são ferramentas e elas podem ser usadas para o bem ou para o mal. Você impedir os bons de terem armas sem afetar em nada os maus é loucura e idiotice.
+
+---
 
 **Argumento**: Ainda que pistolas sejam permitidas, não há razão para permitir rifles de assalto ou outros tipos de armas poderosas. Essas só são usadas para ferir pessoas, não para caçar ou atirar à distância.
 
-## **Refutação**: Sim, armas são usadas para ferir pessoas. Esse é o principal propósito da arma. Se quisermos nos defender de alguém que tenha uma espada, é melhor não se armar apenas com uma faca de passar manteiga. Se o criminoso tiver rifles de assalto ou escopetas, então o valente cidadão que o enfrentar precisará de um armamento equiparável ou superior. Restrições para o porte de arma apenas afeta os cidadãos de bem cumpridores das leis, não criminosos.
+**Refutação**: Sim, armas são usadas para ferir pessoas. Esse é o principal propósito da arma. Se quisermos nos defender de alguém que tenha uma espada, é melhor não se armar apenas com uma faca de passar manteiga. Se o criminoso tiver rifles de assalto ou escopetas, então o valente cidadão que o enfrentar precisará de um armamento equiparável ou superior. Restrições para o porte de arma apenas afeta os cidadãos de bem cumpridores das leis, não criminosos.
 
-
+---
 
 **Argumento**: Nós precisamos deixar apenas a polícia nos proteger. Não podemos trazer a lei para dentro de nossas próprias casas, haverá caos.
 
