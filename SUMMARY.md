@@ -21,17 +21,17 @@
   * [Direitos humanos](capitulo-iii-sociedade/direitos-humanos.md)
 * [Capítulo IV - Raça](capitulo-iv-raca.md)
   * [Diferenças raciais](capitulo-iv-raca/diferencas-raciais.md)
-  * Diversidade
-  * Judeus
-  * Genocídio branco
-  * Orgulho branco
+  * [Diversidade](capitulo-iv-raca/diversidade.md)
+  * [Judeus](capitulo-iv-raca/judeus.md)
+  * [Genocídio branco](capitulo-iv-raca/genocidio-branco.md)
+  * [Orgulho branco](capitulo-iv-raca/orgulho-branco.md)
 * Capítulo V - Diferentes
-  * Ataques gerais
-  * Questões históricas
-  * Cristianismo contra paganismo
-  * Teorias da conspiração
-* Conclusão
-  * Apêndice A - Recompensando o oponente
-  * Apêndice B - Desenvolvendo novos argumentos
-  * Apêndice C - Solução de problemas
+  * [Ataques gerais](ataques-gerais.md)
+  * [Questões históricas](questoes-historicas.md)
+  * [Cristianismo contra paganismo](cristianismo-contra-paganismo.md)
+  * [Teorias da conspiração](teorias-da-conspiracao.md)
+* [Conclusão](conclusao.md)
+  * [Apêndice A - Recompensando o oponente](conclusao/apendice-a-recompensando-o-oponente.md)
+  * [Apêndice B - Desenvolvendo novos argumentos](conclusao/apendice-b-desenvolvendo-novos-argumentos.md)
+  * [Apêndice C - Solução de problemas](conclusao/apendice-c-solucao-de-problemas.md)
 
