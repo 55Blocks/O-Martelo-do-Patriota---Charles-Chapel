@@ -20,7 +20,7 @@
   * [Homossexualidade](capitulo-iii-sociedade/homossexualidade.md)
   * [Direitos humanos](capitulo-iii-sociedade/direitos-humanos.md)
 * [Capítulo IV - Raça](capitulo-iv-raca.md)
-  * Diferenças raciais
+  * [Diferenças raciais](capitulo-iv-raca/diferencas-raciais.md)
   * Diversidade
   * Judeus
   * Genocídio branco
