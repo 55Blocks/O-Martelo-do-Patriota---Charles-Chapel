@@ -1,6 +1,6 @@
 # Summary
 
-* [Introduction](README.md)
+* [Introdução](README.md)
 * [Capítulo I - Introdução](capitulo-i-introducao.md)
   * [Propósito e uso do livro](capitulo-i-introducao/proposito-e-uso-do-livro.md)
   * [Julgando a situação](capitulo-i-introducao/julgando-a-situacao.md)
