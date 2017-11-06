@@ -1,3 +1,5 @@
+## Precisamos revisar:
+
 - [x] (Capítulo I - Propósito e uso do livro)
 - [x] (Capítulo I - Propósito e uso do livro)
 - [x] (Capítulo I - Julgando a situação)
