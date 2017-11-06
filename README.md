@@ -1,2 +1,54 @@
-
-
+- [x] (Capítulo I - Propósito e uso do livro) Revisado
+- [x] (Capítulo I - Propósito e uso do livro) Revisado
+- [x] (Capítulo I - Julgando a situação) Revisado
+- [x] (Capítulo I - Diretrizes gerais) Revisado
+- [x] (Capítulo I - Diretrizes gerais) Revisado
+- [x] (Capítulo I - Diretrizes gerais) Revisado
+- [x] (Capítulo I - Notas sobre os argumentos) Revisado
+- [x] (Capítulo II - Nacionalismo étnico) Revisado
+- [x] (Capítulo II - Democracia) Revisado
+- [x] (Capítulo II - Democracia) Revisado
+- [x] (Capítulo II - Liberdade) Revisado
+- [x] (Capítulo II - Capitalismo e libertarianismo) Revisado
+- [x] (Capítulo II - Uso da violência) Revisado
+- [x] (Capítulo II - Uso da violência) Revisado
+- [x] (Capítulo II - Ajudando o terceiro mundo) Revisado
+- [x] (Capítulo III - Relativismo moral) Revisado
+- [x] (Capítulo III - Relativismo moral) Revisado
+- [x] (Capítulo III - Feminismo/papéis naturais de gênero) Revisado
+- [x] (Capítulo III - Feminismo/papéis naturais de gênero) Revisado
+- [x] (Capítulo III - Religião na sociedade) Revisado
+- [x] (Capítulo III - Religião na sociedade) Revisado
+- [x] (Capítulo III - Homossexualismo) Revisado
+- [x] (Capítulo III - Direitos Humanos) Revisado
+- [x] (Capítulo III - Direitos Humanos) Revisado
+- [x] (Capítulo IV - Diferenças raciais) Revisado
+- [x] (Capítulo IV - Diferenças raciais) Revisado
+- [ ] (Capítulo IV - Diversidade) Precisa revisar
+- [ ] (Capítulo IV - Diversidade) Precisa revisar
+- [x] (Capítulo IV - Judeus) Revisado
+- [x] (Capítulo IV - Judeus) Revisado
+- [x] (Capítulo IV - Judeus) Revisado
+- [ ] (Capítulo IV - Genocídio branco) Precisa revisar
+- [ ] (Capítulo IV - Genocídio branco) Precisa revisar
+- [ ] (Capítulo IV - Orgulho branco) Precisa revisar
+- [ ] (Capítulo V - Ataques gerais) Precisa revisar
+- [ ] (Capítulo V - Ataques gerais) Precisa revisar
+- [ ] (Capítulo V - Ataques gerais) Precisa revisar
+- [ ] (Capítulo V - Ataques gerais) Precisa revisar
+- [ ] (Capítulo V - Questões históricas) Precisa revisar
+- [ ] (Capítulo V - Questões históricas) Precisa revisar
+- [ ] (Capítulo V - Questões históricas) Precisa revisar
+- [ ] (Capítulo V - Questões históricas) Precisa revisar
+- [ ] (Capítulo V – Cristianismo versus Paganismo) Precisa revisar
+- [ ] (Capítulo V – Cristianismo versus Paganismo) Precisa revisar
+- [ ] (Capítulo V – Cristianismo versus Paganismo) Precisa revisar
+- [ ] (Capítulo V - Teorias da conspiração) Precisa revisar
+- [ ] (Conclusão) Precisa revisar
+- [ ] (Conclusão - Apêndice A) Precisa revisar
+- [ ] (Conclusão - Apêndice B) Precisa revisar
+- [ ] (Conclusão - Apêndice B) Precisa revisar
+- [ ] (Conclusão - Apêndice B) Precisa revisar
+- [ ] (Conclusão - Apêndice B) Precisa revisar
+- [ ] (Conclusão - Apêndice C) Precisa revisar
+- [ ] (Conclusão - Apêndice C) Precisa revisar
