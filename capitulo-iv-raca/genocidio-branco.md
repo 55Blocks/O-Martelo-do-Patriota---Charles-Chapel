@@ -1,7 +1,7 @@
 ## Genocídio Branco
 Todas as populações da Terra estão explodindo, mas não os brancos, estes estão desaparecendo rapidamente. Nossa taxa de natalidade é baixa e nossos países estão sendo inundados com imigrantes não-brancos contra a vontade da população. O resultado lógico disso é a extinção da raça branca. Uma vez que isso está sendo aplicado pelas políticas governamentais e encorajado por outros grupos étnicos, pode-se dizer que é um genocídio calculado.
 ### Argumentos
-**Argumento:** Brancos estão indo bem, eles são as pessoas mais endinheiradas da terra.
+**Argumento:** Brancos estão indo bem, eles são as pessoas mais endinheiradas da terra.<br>
 **Refutação:** Um homem com câncer não está "indo bem" mesmo se ele tiver dinheiro e um iPhone. Nossa população está diminuindo e nossas terras estão sendo inundadas com não-brancos, e você acha que dinheiro e bugigangas tornam tudo bem? Você precisa rever suas prioridades.
 <p align="center">~</p>
 
