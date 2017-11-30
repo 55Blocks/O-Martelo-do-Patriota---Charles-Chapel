@@ -8,15 +8,16 @@ Os brancos fizeram muitas coisas boas na história: civilizações como a Gréci
 **Argumentação:** A raça branca sempre tem oprimido outros e fez coisas horríveis. Não há nada do que se orgulhar.<br>
 **Refutação:** Você está mais interessado em colocar as pessoas para baixo do que qualquer outra coisa. Alguém constrói uma catedral e você diz “ele colou na escola uma vez, não há nada do que se orgulhar”. Todo mundo já fez coisas ruins – o fato de você estar completamente focalizado nessas coisas mostra que você tem uma agenda hostil.
 <p align="center">~</p>
+
 **Argumento:** Nossas só alcançamos essas conquistas porque exploramos outras pessoas.<br>
 **Refutação:** Quem foi explorado para construir as catedrais? Quem foi explorado para escrever os concertos de Bach? Quem foi explorado para inventar a máquina a vapor? Você é louco.
 <p align="center">~</p>
 
-Argumentação: Estas invenções e indústrias de pessoas brancas estão destruindo o meio ambiente.<br>
+**Argumentação:** Estas invenções e indústrias de pessoas brancas estão destruindo o meio ambiente.<br>
 **Refutação:** Então você acha que essas invenções não valeram a pena devido aos danos que causaram, eu presumo que você não anda em carros, você não usa um computador, e você não usa qualquer produto industrial. Oh, você USA? Eu acho que você pensa que os benefícios valeram os problemas causados então. E de qualquer maneira, quem você acha que pode **resolver** esses problemas? Ninguém exceto os brancos parecem estar se **importando de verdade** com o meio ambiente.
 <p align="center">~</p>
 
-Argumentação: Se não fosse pelos matemáticos árabes/por judeus como Einstein/pelos cientistas chineses, nós não teríamos alcançado nossas grandes realizações.<br>
+**Argumentação:** Se não fosse pelos matemáticos árabes/por judeus como Einstein/pelos cientistas chineses, nós não teríamos alcançado nossas grandes realizações.<br>
 **Refutação:** Então de acordo com sua lógica, o inventor da engrenagem deve ser creditado como inventor do relógio? O criador do símbolo para o número zero deve ser creditado pela física quântica? O descobridor da pólvora deve ser honorado pelo desenvolvimento do M-16, ou mesmo pelo desenvolvimento dos foguetes Apollo? Que tipo de pensamento atrasado é esse?
 <p align="center">~</p>
 
